@@ -1,6 +1,6 @@
 # curated porn list
 
-## Companies/Big Channels:
+### Companies/Big Channels:
 - Fuck Glasses
 - Bang Bus (BANGBROS)
 - New Sensations
@@ -8,18 +8,18 @@
 - BrattySis
 - Made in Canarias
 
-## Homemade Channels:
+### Homemade Channels:
 - Amadani
 - Jamie Young
 - kinkycouple111
 
-## Porn Stars:
+### Porn Stars:
 - Abella Danger (from Bang Bus)
 - Cameron Canela
 - Kimmy Granger (from New Sensations)
 - Kristen Scott
 
-## Links:
+### Links:
 https://pt.pornhub.com/view_video.php?viewkey=ph5c9bc41311c1f
 https://pt.pornhub.com/view_video.php?viewkey=ph5957b34c701d7 (step-sister and brother hanging out, watch it for the story)
 https://pt.pornhub.com/view_video.php?viewkey=ph5a4a63979075c (Made in Canarios video)
