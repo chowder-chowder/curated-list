@@ -20,7 +20,6 @@
 - Kristen Scott
 - LittleReislin
 - Lolly_lips
-- Alex Adams (looks like a anime girl IRL)
 
 ### Links:
 https://pt.pornhub.com/view_video.php?viewkey=ph5c9bc41311c1f
